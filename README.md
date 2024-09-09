@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SRP4214
+- 👋 Hi, I’m Shiv Patel
 - 👀 I’m interested in Web development, Machine Learning, Deep Learning, Natural Language Processing, DSA and many more
 - 🌱 I’m currently learning Web development,Machine Learning, Deep Learning, Natural Language Processing, DSA
 - 💞️ I’m looking to collaborate on amazing projects
