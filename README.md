@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on amazing projects
 - 📫 How to reach me ??
 - Mail : shiv160804@gmail.com
-- 😄 Pronouns: Ms.
+- 😄 Pronouns: Mr.
 - ⚡ Fun fact: I am a person exploring new technologies at my own pace and believe in work life balance. 
 
 <!---
